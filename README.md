@@ -7,4 +7,3 @@
 
 🌷 Você estrará em contato comigo:
 00001113365341sp@al.educacao.sp.gov.br
-gabriellyfelix633@gmail.com
